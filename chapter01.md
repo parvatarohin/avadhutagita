@@ -360,6 +360,94 @@ etatsarvaṁ na me kiṁcidviśuddho'hamajo'vyayaḥ (40)
 
 What I do, what I eat, what I sacrifice, what I give — all this is not mine in the least. I am pure, unborn, undecaying.
 
+सर्वं जगद्विद्धि निराकृतीदं  
+सर्वं जगद्विद्धि विकारहीनम् ।  
+सर्वं जगद्विद्धि विशुद्धदेह  
+सर्वं जगद्विद्धि शिवैकरूपम् ।।४१।।
+
+sarvaṁ jagadviddhi nirākṛtīdaṁ  
+sarvaṁ jagadviddhi vikārahīnam  
+sarvaṁ jagadviddhi viśuddhadehaṁ  
+sarvaṁ jagadviddhi śivaikarūpam (41)
+
+Know all this universe to be formless. Know all this universe to be without change. Know all this universe to be of purified body. Know all this universe to be of the nature of the Absolute.
+
+तत्त्वं त्वं न हि सन्देहः किं जानाम्यथवा पुनः ।  
+असंवेद्यं स्वसंवेद्यमात्मानं मन्यसे कथम् ।।४२।।
+
+tattvaṁ tvaṁ na hi sandehaḥ kiṁ jānāmyathavā punaḥ  
+asaṁvedyaṁ svasaṁvedyamātmānaṁ manyase katham (42)
+
+Why do you consider the Self, which is perceptible to Itself, as imperceptible? Otherwise — If one does not perceive every being as The Self, one is still ignorant.
+
+मायाऽमाया कथं तात छायाऽछाया न विद्यते ।  
+तत्त्वमेकमिदं सर्वं व्योमाकारं निरञ्जनम् ।।४३।।
+
+māyā'māyā kathaṁ tāta chāyā'chāyā na vidyate  
+tattvamekamidaṁ sarvaṁ vyomākāraṁ nirañjanam (43)
+
+My child, how can there be illusion and non illusion, shadow and lack of shadow? All this is one Truth, all this is of the nature of space and without taint.
+
+आदिमध्यान्तमुक्तोऽहं न बद्धोऽहं कदाचन ।  
+स्वभावनिर्मलः शुद्ध इति मे निश्चिता मतिः ।।४४।।
+
+ādimadhyāntamukto'haṁ na baddho'haṁ kadācana  
+svabhāvanirmalaḥ śuddha iti me niścitā matiḥ (44)
+
+I am free in the beginning, in the middle, and in the end. I am never bound. This is my sure knowledge — that I am naturally spotless and pure.
+
+महदादि जगत्सर्वं न किंचित्प्रतिभाति मे ।  
+ब्रह्मैव केवलं सर्वं कथं वर्णाश्रमस्थितिः ।।४५।।
+
+mahadādi jagatsarvaṁ na kiṁcitpratibhāti me  
+brahmaiva kevalaṁ sarvaṁ kathaṁ varṇāśramasthitiḥ (45)
+
+The whole universe, beginning with the principle of cosmic intelligence, is not in the least manifest to me. All is indeed Brahman alone. How can there be any existence in cast or stage of life for me?
+
+जानामि सर्वथा सर्वमहमेको निरन्तरम् ।  
+निरालम्बमशून्यं च शून्यं व्योमादिपञ्चकम् ।।४६।।
+
+jānāmi sarvathā sarvamahameko nirantaram  
+nirālambamaśūnyaṁ ca śūnyaṁ vyomādipañcakam (46)
+
+I know that all, in every way, is the one indivisible "I" which is self-sustained and full, while the five elements, beginning with ether, are empty.
+
+न षण्ढो न पुमान्न स्त्री न बोधो नैव कल्पना ।  
+सानन्दो वा निरानन्दमात्मानं मन्यसे कथम् ।।४७।।
+
+na ṣaṇḍho na pumānna strī na bodho naiva kalpanā  
+sānando vā nirānandamātmānaṁ manyase katham (47)
+
+The Self is neither eunuch, man, nor woman; it is neither idea nor imagination. How can you think the Self to be full of joy or joyless?
+
+षडङ्गयोगान्न तु नैव शुद्धं  
+मनोविनाशान्न तु नैव शुद्धम् ।  
+गुरूपदेशान्न तु नैव शुद्धं  
+स्वयं च तत्त्वं स्वयमेव बुद्धम् ।।४८।।
+
+ṣaḍaṅgayogānna tu naiva śuddhaṁ  
+manovināśānna tu naiva śuddham  
+gurūpadeśānna tu naiva śuddhaṁ  
+svayaṁ ca tattvaṁ svayameva buddham (48)
+
+The Self certainly does not become pure through the practice of six-limbed yoga. It certainly is not purified by the destruction of the mind. It certainly is not made pure by the instructions of the teacher. It is Itself the Truth. It is Itself the illumined One.
+
+न हि पञ्चात्मको देहो विदेहो वर्तते न हि ।  
+आत्मैव केवलं सर्वं तुरीयं च त्रयं कथम् ।।४९।।
+
+na hi pañcātmako deho videho vartate na hi  
+ātmaiva kevalaṁ sarvaṁ turīyaṁ ca trayaṁ katham (49)
+
+There is no body made up of five elements; nor is there anyone who is disembodied. All is verily the Self alone. How can there be the three states and the fourth?
+
+न बद्धो नैव मुक्तोऽहं न चाहं ब्रह्मणः पृथक् ।  
+न कर्ता न च भोक्ताहं व्याप्यव्यापकवर्जितः ।।५०।।
+
+na baddho naiva mukto'haṁ na cāhaṁ brahmaṇaḥ pṛthak  
+na kartā na ca bhoktāhaṁ vyāpyavyāpakavarjitaḥ (50)
+
+I am not bound, I am not, indeed, liberated — I am not different from Brahman. Neither doer nor enjoyer — I am devoid of the distinctions of the pervaded and the pervader.
+
 [^1]: Piśāca: A class of flesh-eating and shape-shifting demons, first mentioned in the Veda, and ubiquitous in later Epic and Purāṇic texts. They are liable to possess human beings, and may need propitiation. The related adjective, paiśācī, is applied to various categories of things thought to be ghoulish or uncouth
 
 [^2]: One should be ashamed to meditate, because meditation pre-supposes a shameful forgetfulness of one's true nature. If one does not know the Self meditation is the way to realization. After realization one will cease to meditate.
