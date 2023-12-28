@@ -147,4 +147,84 @@ tvameva paramaṁ tattvamataḥ kiṁ paritapyase (16)
 
 You do not belong to that which is composed of the five objects of sense, such as sound; nor does that belong to you. You indeed are the supreme Reality. Why then do you suffer?
 
+जन्म मृत्युर्न ते चित्तं बन्धमोक्षौ शुभाशुभौ ।  
+कथं रोदिषि रे वत्स नामरूपं न ते न मे ।।१७।।
+
+janma mṛtyurna te cittaṁ bandhamokśau śubhāśubhau  
+kathaṁ rodiṣi re vatsa nāmarūpaṁ na te na me (17)
+
+For you there is neither birth nor death, for you there is no mind, for you there is neither bondage nor liberation, neither good nor evil. My child why shed tears? Neither you nor I have name and form.
+
+अहो चित्त कथं भ्रान्तः प्रधावसि पिशाचवत् ।  
+अभिन्नं पश्य चात्मानं रागत्यागात्सुखी भव ।।१८।।
+
+aho citta kathaṁ bhrāntaḥ pradhāvasi piśācavat  
+abhinnaṁ paśya cātmānaṁ rāgatyāgātsukhī bhava (18)
+
+Oh mind, why do you wander about deluded, like an unclean spirit? Behold the Self indivisible. Be happy through renunciation of attachment.
+
+त्वमेव तत्त्वं हि विकारवर्जितं  
+निष्कम्पमेकं हि विमोक्षविग्रहम् ।  
+न ते च रागो ह्यथवा विरागः  
+कथं हि सन्तप्यसि कामकामतः ।।१९।।
+
+tvameva tattvaṁ hi vikāravarjitaṁ  
+niṣkampamekaṁ hi vimokśavigraham  
+na te ca rāgo hyathavā virāgaḥ  
+kathaṁ hi santapyasi kāmakāmataḥ (19)
+
+You verily are Truth, devoid of change, motionless, one, of the nature of freedom. You have neither attachment nor aversion. Why do you suffer, seeking the objects of desires?
+
+वदन्ति श्रुतयः सर्वाः निर्गुणं शुद्धमव्ययम् ।  
+अशरीरं समं तत्त्वं तन्मां विद्धि न संशयः ।।२०।।
+
+vadanti śrutayaḥ sarvāḥ nirguṇaṁ śuddhamavyayam  
+aśarīraṁ samaṁ tattvaṁ tanmāṁ viddhi na saṁśayaḥ (20)
+
+All the scriptures say that the Truth is without attributes, pure, immutable, bodiless, and existing equally everywhere. Know me to be That.
+
+साकारमनृतं विद्धि निराकारं निरन्तरम् ।  
+एतत्तत्त्वोपदेशेन न पुनर्भवसम्भवः ।।२१।।
+
+sākāramanṛtaṁ viddhi nirākāraṁ nirantaram  
+etattattvopadeśena na punarbhavasambhavaḥ (21)
+
+Know that which has form to be false, that which is formless to be eternal. Through the instruction of this truth there is no longer rebirth into this world.
+
+एकमेव समं तत्त्वं वदन्ति हि विपश्चितः ।  
+रागत्यागात्पुनश्चित्तमेकानेकं न विद्यते ।।२२।।
+
+ekameva samaṁ tattvaṁ vadanti hi vipaścitaḥ  
+rāgatyāgātpunaścittamekānekaṁ na vidyate (22)
+
+Sages say that reality is one only and the same. And through renunciation of attachment, the mind, which is one and many, ceases to exist.
+
+अनात्मरूपं च कथं समाधि-  
+रात्मस्वरूपं च कथं समाधिः ।  
+अस्तीति नास्तीति कथं समाधि-  
+र्मोक्षस्वरूपं यदि सर्वमेकम् ।।२३।।
+
+anātmarūpaṁ ca kathaṁ samādhi-  
+rātmasvarūpaṁ ca kathaṁ samādhiḥ  
+astīti nāstīti kathaṁ samādhi-
+rmokśasvarūpaṁ yadi sarvamekam (23)
+
+If it is of the nature of the not-Self, how can there be Samādhi? If it is of the nature of the Self, how can there be Samādhi? If it is both "is" and "is not", how can there be Samādhi?
+
+विशुद्धोऽसि समं तत्त्वं विदेहस्त्वमजोऽव्ययः ।  
+जानामीह न जानामीत्यात्मानं मन्यसे कथम् ।।२४।।
+
+viśuddho'si samaṁ tattvaṁ videhastvamajo'vyayaḥ  
+jānāmīha na jānāmītyātmānaṁ manyase katham (24)
+
+You are pure homogeneous reality, disembodied, unborn, and immutable. Why do you think of yourself as "I know it here" or as "I do not know"?
+
+तत्त्वमस्यादिवाक्येन स्वात्मा हि प्रतिपादितः ।  
+नेति नेति श्रुतिर्ब्रूयादनृतं पाञ्चभौतिकम् ।।२५।।
+
+tattvamasyādivākyena svātmā hi pratipāditaḥ  
+neti neti śrutirbrūyādanṛtaṁ pāñcabhautikam (25)
+
+By such sentences as "That thou art," our own Self is affirmed. Of that which is untrue and composed of the five elements — the Śruti (scripture) says, "Not this, not this."
+
 [^1]: Piśāca: A class of flesh-eating and shape-shifting demons, first mentioned in the Veda, and ubiquitous in later Epic and Purāṇic texts. They are liable to possess human beings, and may need propitiation. The related adjective, paiśācī, is applied to various categories of things thought to be ghoulish or uncouth
