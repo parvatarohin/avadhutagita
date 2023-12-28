@@ -284,6 +284,82 @@ ghaṭe bhinne ghaṭākāśaṁ sulīnaṁ bhedavarjitam
 When the pot is broken, the space within it is absorbed in the infinite space and becomes undifferentiated. When the mind becomes pure, I do not perceive any difference between the mind
 and the supreme Being.
 
+न घटो न घटाकाशो न जीवो न जीवविग्रहः ।  
+केवलं ब्रह्म संविद्धि वेद्यवेदकवर्जितम् ।।३२।।
+
+na ghaṭo na ghaṭākāśo na jīvo na jīvavigrahaḥ  
+kevalaṁ brahma saṁviddhi vedyavedakavarjitam (32)
+
+There is no pot; there is no pot's interior space. Neither is there an individual soul nor the form of an individual soul. Know the absolute Brahman, devoid of knowable and knower.
+
+सर्वत्र सर्वदा सर्वमात्मानं सततं ध्रुवम् ।  
+सर्वं शून्यमशून्यं च तन्मां विद्धि न संशयः ।।३३।।
+
+sarvatra sarvadā sarvamātmānaṁ satataṁ dhruvam  
+sarvaṁ śūnyamaśūnyaṁ ca tanmāṁ viddhi na saṁśayaḥ (33)
+
+Know me to be that Self who is everything and everywhere at all times, the one who is eternal, steady, the All, the nonexistent, and the Existent. Have no doubt.
+
+वेदा न लोका न सुरा न यज्ञा  
+वर्णाश्रमो नैव कुलं न जातिः ।  
+न धूममार्गो न च दीप्तिमार्गो  
+ब्रह्मैकरूपं परमार्थतत्त्वम् ।।३४।।
+
+vedā na lokā na surā na yajñā  
+varṇāśramo naiva kulaṁ na jātiḥ  
+na dhūmamārgo na ca dīptimārgo  
+brahmaikarūpaṁ paramārthatattvam (34)
+
+There are no Vedas, no worlds, no gods, no sacrifices. There is certainly no caste, no stage in life, no family, no birth. There is neither the path of smoke nor the path of light. There is only the highest Truth, the homogeneous Brahman.
+
+व्याप्यव्यापकनिर्मुक्तः त्वमेकः सफलं यदि ।  
+प्रत्यक्षं चापरोक्षं च ह्यात्मानं मन्यसे कथम् ।।३५।।
+
+vyāpyavyāpakanirmuktaḥ tvamekaḥ saphalaṁ yadi  
+pratyakśaṁ cāparokśaṁ ca hyātmānaṁ manyase  katham (35)
+
+If you are free of the pervaded and pervader, if you are one and fulfilled, how can you think of yourself as directly perceptible by the senses or beyond the range of the senses?
+
+अद्वैतं केचिदिच्छन्ति द्वैतमिच्छन्ति चापरे ।  
+समं तत्त्वं न विन्दन्ति द्वैताद्वैतविवर्जितम् ।।३६।।
+
+advaitaṁ kecidicchanti dvaitamicchanti cāpare  
+samaṁ tattvaṁ na vindanti dvaitādvaitavivarjitam (36)
+
+Some seek nonduality, others duality. They do not know the Truth, which is the same at all times and everywhere, which is devoid of both duality and nonduality.
+
+श्वेतादिवर्णरहितं शब्दादिगुणवर्जितम् ।  
+कथयन्ति कथं तत्त्वं मनोवाचामगोचरम् ।।३७।।
+
+śvetādivarṇarahitaṁ śabdādiguṇavarjitam  
+kathayanti kathaṁ tattvaṁ manovācāmagocaram (37)
+
+How can they describe the Truth, which is beyond mind and words, which is devoid of white and other colours, of sound and other qualities?
+
+यदाऽनृतमिदं सर्वं देहादिगगनोपमम् ।  
+तदा हि ब्रह्म संवेत्ति न ते द्वैतपरम्परा ।।३८।।
+
+yadā'nṛtamidaṁ sarvaṁ dehādigaganopamam  
+tadā hi brahma saṁvetti na te dvaitaparamparā (38)
+
+When all these appear to you as false, when the body and so on appear to you like space, then you know Brahman truly, then for you there is no dual series.
+
+परेण सहजात्मापि ह्यभिन्नः प्रतिभाति मे ।  
+व्योमाकारं तथैवैकं ध्याता ध्यानं कथं भवेत् ।।३९।।
+
+pareṇa sahajātmāpi hyabhinnaḥ pratibhāti me  
+vyomākāraṁ tathaivaikaṁ dhyātā dhyānaṁ kathaṁ bhavet (39)
+
+Even my natural self appears to me as non-distinct from the supreme Self; it appears to be one and like space. How can there be meditator and meditation?
+
+यत्करोमि यदश्नामि यज्जुहोमि ददामि यत् ।  
+एतत्सर्वं न मे किंचिद्विशुद्धोऽहमजोऽव्ययः ।।४०।।
+
+yatkaromi yadaśnāmi yajjuhomi dadāmi yat  
+etatsarvaṁ na me kiṁcidviśuddho'hamajo'vyayaḥ (40)
+
+What I do, what I eat, what I sacrifice, what I give — all this is not mine in the least. I am pure, unborn, undecaying.
+
 [^1]: Piśāca: A class of flesh-eating and shape-shifting demons, first mentioned in the Veda, and ubiquitous in later Epic and Purāṇic texts. They are liable to possess human beings, and may need propitiation. The related adjective, paiśācī, is applied to various categories of things thought to be ghoulish or uncouth
 
 [^2]: One should be ashamed to meditate, because meditation pre-supposes a shameful forgetfulness of one's true nature. If one does not know the Self meditation is the way to realization. After realization one will cease to meditate.
