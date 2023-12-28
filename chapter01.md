@@ -227,4 +227,63 @@ neti neti śrutirbrūyādanṛtaṁ pāñcabhautikam (25)
 
 By such sentences as "That thou art," our own Self is affirmed. Of that which is untrue and composed of the five elements — the Śruti (scripture) says, "Not this, not this."
 
+आत्मन्येवात्मना सर्वं त्वया पूर्णं निरन्तरम् ।  
+ध्याता ध्यानं न ते चित्तं निर्लज्जं ध्यायते कथम् ।।२६।।
+
+ātmanyevātmanā sarvaṁ tvayā pūrṇaṁ nirantaram  
+dhyātā dhyānaṁ na te cittaṁ nirlajjaṁ dhyāyate katham (26)
+
+As the self is filled by the Self, so is all filled continuously by you. There is no meditator or meditation. Why does your mind meditate shamelessly[^2]?
+
+शिवं न जानामि कथं वदामि  
+शिवं न जानामि कथं भजामि ।  
+अहं शिवश्चेत्परमार्थथतत्त्वं  
+समस्वरूपं गगनोपमं च ।।२७।।
+
+śivaṁ na jānāmi kathaṁ vadāmi  
+śivaṁ na jānāmi kathaṁ bhajāmi  
+ahaṁ śivaścetparamārthathatattvaṁ  
+samasvarūpaṁ gaganopamaṁ ca (27)
+
+I do not know the Supreme; how shall I speak of Him? I do not know the Supreme how shall I worship Him? If I am the supreme One, who is the highest Truth, who is homogeneous Being and like unto space, how then shall I speak of Him and worship Him?
+
+नाहं तत्त्वं समं तत्त्वं कल्पनाहेतुवर्जितम् ।  
+ग्राह्यग्राहकनिर्मुक्तं स्वसंवेद्यं कथं भवेत् ।।२८।।
+
+nāhaṁ tattvaṁ samaṁ tattvaṁ kalpanāhetuvarjitam  
+grāhyagrāhakanirmuktaṁ svasaṁvedyaṁ kathaṁ bhavet (28)
+
+The principle of ego is not the Truth, which is homogeneous, which is free from the cause of superimposition and distinctions of perceived and perceiver. How can the ego be That which is aware of Itself?
+
+अनन्तरूपं न हि वस्तु किंचि-  
+त्तत्त्वस्वरूपं न हि वस्तु किंचित् ।  
+आत्मैकरूपं परमार्थतत्त्वं  
+न हिंसको वापि न चाप्यहिंसा ।।२९।।
+
+anantarūpaṁ na hi vastu kiṁci-  
+ttattvasvarūpaṁ na hi vastu kiṁcit  
+ātmaikarūpaṁ paramārthatattvaṁ  
+na hiṁsako vāpi na cāpyahiṁsā (29)
+
+There is no substance whatever which is by nature unlimited. There is no substance whatever which is of the nature of Reality. The very Self is the supreme Truth. There is neither injury nor non injury in It.
+
+विशुद्धोऽसि समं तत्त्वं विदेहमजमव्ययम् ।  
+विभ्रमं कथमात्मार्थे विभ्रान्तोऽहं कथं पुनः ।।३०।।
+
+viśuddho'si samaṁ tattvaṁ videhamajamavyayam  
+vibhramaṁ kathamātmārthe vibhrānto'haṁ kathaṁ punaḥ (30)
+
+You are the homogeneous Reality; you are pure, bodiless, birthless, and imperishable. Why then do you have any delusion about the Self? Again, why am I myself deluded?
+
+घटे भिन्ने घटाकाशं सुलीनं भेदवर्जितम् ।  
+शिवेन मनसा शुद्धो न भेदः प्रतिभाति मे ।।३१।।
+
+ghaṭe bhinne ghaṭākāśaṁ sulīnaṁ bhedavarjitam  
+śivena manasā śuddho na bhedaḥ pratibhāti me (31)
+
+When the pot is broken, the space within it is absorbed in the infinite space and becomes undifferentiated. When the mind becomes pure, I do not perceive any difference between the mind
+and the supreme Being.
+
 [^1]: Piśāca: A class of flesh-eating and shape-shifting demons, first mentioned in the Veda, and ubiquitous in later Epic and Purāṇic texts. They are liable to possess human beings, and may need propitiation. The related adjective, paiśācī, is applied to various categories of things thought to be ghoulish or uncouth
+
+[^2]: One should be ashamed to meditate, because meditation pre-supposes a shameful forgetfulness of one's true nature. If one does not know the Self meditation is the way to realization. After realization one will cease to meditate.
