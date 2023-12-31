@@ -21,7 +21,7 @@ nirākāraṃ kathaṃ vande hyabhinnaṃ śivamavyayam (2)
 
 How shall the unfettered propitiate Self? All that appears in this realm of forms is alone the Atman, indivisible Self: selfless immutable, auspicious, one.
 
-पञ्चभूतात्मकं विश्वं मरीचिजलसन्निभम् ।
+पञ्चभूतात्मकं विश्वं मरीचिजलसन्निभम् ।  
 कस्याप्यहो नमस्कुर्यामहमेको निरञ्जनः ।।३।।
 
 pañcabhūtātmakaṃ viśvaṃ marīcijalasannibham  
